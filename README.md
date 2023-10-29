@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @antonyjagger
 - 👀 I’m interested in football, dogs, music and of course anything to do with computers and IT!
-- 🌱 I’m currently learning a two year course on computer engineering and web development at Mid-University, Sweden
+- 🌱 I’m currently studying for a two year course on computer engineering and web development at Mid-University, Sweden
 - 📫 You can reach me via email at anja2307 @ student.miun.se
